@@ -1,1 +1,1 @@
-buy on discord -> .gg/QCY6CuajqK
+buy on discord
